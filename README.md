@@ -1,6 +1,7 @@
 # 💫 About Me:
 💎Discord bot developer<br>💎Releasing and editing free 5M scripts<br>
 
+### Můj piškord: #### 17𝑥𝑣𝑖𝑝𝑒𝑟#5945
 
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/eAfwxrp3nG) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/__v1p3r__) [![Twitch](https://img.shields.io/badge/Twitch-%239146FF.svg?logo=Twitch&logoColor=white)](https://twitch.tv/vipercz_) 
