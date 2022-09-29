@@ -10,7 +10,7 @@
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=V1perino&theme=dark&hide_border=false&include_all_commits=false&count_private=false&layout=compact)
 
 ---
-### 💜 Můj piškord: 17𝑥𝑣𝑖𝑝𝑒𝑟#5945
+### 💜 Můj discord: 17𝑥𝑣𝑖𝑝𝑒𝑟#5945
 
 ---
 [![](https://visitcount.itsvg.in/api?id=V1perino&icon=9&color=4)](https://visitcount.itsvg.in)
