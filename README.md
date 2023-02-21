@@ -11,7 +11,7 @@
 
 ---
 ### 💜 Discord: 17𝑥𝑣𝑖𝑝𝑒𝑟#5945
-
+### 💜 SUPPORT DISCORD: https://discord.gg/TD4mqHmsZ8
 ---
 [![](https://visitcount.itsvg.in/api?id=V1perino&icon=9&color=4)](https://visitcount.itsvg.in)
 
